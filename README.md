@@ -4,7 +4,8 @@
 <br>
 So when nothing matters and in the end you get thrown anyways, why continue?<br>
 Continue, because in the void, meaning is what <b>you</b> make of it.<br>
-<br>> So are you a 1 or a 0?
+<br>
+> So are you a 1 or a 0?
 <br><br><br>
 
 ###### - Rick Sanchez
